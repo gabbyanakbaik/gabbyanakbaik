@@ -1,2 +1,2 @@
 # Hi there 👋
-Code • Coffee • Curiosity ☕
+### I'm Gabb
